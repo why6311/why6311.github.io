@@ -22,5 +22,5 @@ Work experience
   
 
 * Fall 2022--Spring 2023: Club Assistant
-  * Association of Science and Fantasy, WUhan University
+  * Association of Science and Fantasy, Wuhan University
  
